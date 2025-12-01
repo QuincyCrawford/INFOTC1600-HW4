@@ -14,9 +14,9 @@ I find myself interested in a variety of sports. Mostly because I have always fe
 
 It has always been a bonding point for my dad, brother, as well as many of my closest friends. Its something that I hope I can continue as I move into the future. I have a few bucketlist type items that I have in relation to sports that I would like to get done as well
 
-~~ Win A Fantasy Football Leauge~~
+Win A Fantasy Football Leauge
 Get a Perfect March Madness Bracket
-Visit all 30 ==Current== NFL Stadiums
+Visit all 30 Current NFL Stadiums
 Go to a Superbowl or The Olympics
 
 ### Navigation to other pages
