@@ -9,7 +9,7 @@ Music has always played a big part in who I am. I have made many of my closest f
 
 outside of perfoming like I do for Marching Mizzou and Jazz bands I have been in previously. My favorite genera is Alt/Indie Rock but truthfully I enjoy most Kinds of music some of my favorite bands are
 
-- Phoneboy =My Favorite=
+- Phoneboy *My Favorite*
 - INOHA
 - Good Kid
 - The Blues Brothers
